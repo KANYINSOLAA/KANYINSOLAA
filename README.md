@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning DATA ANALYSING
 - 💞️ I’m looking to collaborate on DIFFERENT ASPECTS IN DATA
 - 📫 How to reach me VIA MY E-MAIL
-- I am also an account where i currently practice
+- I am also an account officer where I currently practice
 
 <!---
 KANYINSOLAA/KANYINSOLAA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
